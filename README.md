@@ -1,2 +1,2 @@
-# bigo-live
-http://lovethemychat22.madulanang100.club
+click
+https://elenavideochall.blogspot.com/?m=1
